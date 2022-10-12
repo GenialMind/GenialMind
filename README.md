@@ -1,1 +1,1 @@
-- 👋 GENIALMIND LLC US
+- 👋 GENIALMIND
